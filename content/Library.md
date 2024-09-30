@@ -3,7 +3,6 @@
 - Bible (The Message translation)
 - The Worldly Philosophers by Robert Heilbroner
 - Underworld by Don DeLillo
-- The Art of Learning by Josh Waitzkin
 - Measurement by Paul Lockhart
 - The Timeless Way of Building by Christopher Alexander et al
 - Theosis by Archimandrite George
@@ -16,6 +15,7 @@
 - Born to Run by Christopher McDougall
 - A Mathematician's Lament by Paul Lockhart
 - Autobiography of a Yogi by Paramahansa Yogananda
+- The Art of Learning by Josh Waitzkin
 
 #### To Read:
 
