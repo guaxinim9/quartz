@@ -1,0 +1,5 @@
+There is probably some difference in kind between us and the other animals, owing to our unique time-consciousness and our language and our iterative culture. [[Terence McKenna]] believed that some transcendental object was pulling our species from raw animal existence into history and from history into hyperspace, and [[Christianity]] seems to believe something similar. The theory of evolution seems to be sufficient to explain the whole unfolding of life on earth, save 1. the emergence of the first life form and 2. the emergence of us.
+
+So it would be dishonest for me to say that human beings are simply animals and so we are programmed for an objective function, same as any animal, and that this function clearly has something to do with the tribe, with hunting and gathering, which are clearly team sports for such puny apes as we are, and civilization is a mistake and it only makes us miserable. This is not the whole truth...something much weirder is going on. 
+
+But this is the line of thinking which originally led me to explore [[The Tribe]] as Eden, as the utopia in our DNA which informs all. And though it is not the whole truth, there is much truth in it. 
