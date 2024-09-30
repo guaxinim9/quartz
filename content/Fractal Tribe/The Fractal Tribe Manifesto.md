@@ -132,9 +132,11 @@ Our economic model holds that the rational individual will act in the market acc
 
 But let us take a clear eyed look at the situation on the ground.
 
-Individuals tend to be weak and desperate. So the individual lives in survival mode, making decisions for the short term. They need bread now, their children need bread, and so they sell themselves. They have no choice.
+When we are without a tribe to take care of us, we know in our guts that we are in danger, likely to die alone on the unforgiving open plain. 
 
-This system does not create self-actualized human beings, capable of being rational economic actors in the ever-expanding global market. It creates cheap labour.
+Individuals tend therefore to be weak and desperate, living in survival mode, making decisions for the short term. They need bread now, their children need bread, and so they sell themselves. They have no choice.
+
+This system does not create self-actualized human beings, capable of being rational actors in the ever-expanding global market. It creates cheap labour.
 
 The animal fear of the individual precludes the possibility of rational choice. Only humans who _have_ a choice are capable in principle of making a rational choice. The assumptions of our economics are therefore bunk as long as billions must choose between slavery and starvation.
 
