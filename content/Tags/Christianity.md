@@ -21,4 +21,8 @@ Indigenous people all around the world live in harmony with nature, and their co
 
 There is a two-way relationship between your metaphysics and way of life. Both are lately up to you, but there is still some influence from your culture. Those who inherit a dead lifestyle and uncritically accept it are prone to take refuge in nihilism. 
 
+But the mystery is that Christianity won. Nobody could have seen this coming. They were one small cult against the greatest empire in history. When Jesus was crucified, Rome was at its apex and seemed unassailable. Yet the seed was planted and nowadays Rome is first and foremost a Jesus-place.
+
+How did anyone get converted? [[Conversion is a miracle]], always. This is really one of the strongest pieces of evidence for Christianity because to convince someone of such an absurd and paradoxical thing is itself a miracle, and it is a documented fact that this miracle has been performed over and over again in the most unlikely of places and to the most unlikely of people. 
+
 As for me, I love Jesus and I believe his spirit is present in the world. I would like to become a Christian...but this is not something to take lightly. It is probably the hardest thing in the world. 
