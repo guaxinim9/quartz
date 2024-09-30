@@ -1,4 +1,8 @@
 ---
 title: Home
 ---
-Hello and welcome to my hypertext garden!
+Welcome to my [[Hypertext]] garden!
+
+Things I'm proud of:
+[[Education of the Future]]
+
