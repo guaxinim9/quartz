@@ -25,4 +25,10 @@ But the mystery is that Christianity won. Nobody could have seen this coming. Th
 
 How did anyone get converted? [[Conversion is a miracle]], always. This is really one of the strongest pieces of evidence for Christianity because to convince someone of such an absurd and paradoxical thing is itself a miracle, and it is a documented fact that this miracle has been performed over and over again in the most unlikely of places and to the most unlikely of people. 
 
-As for me, I love Jesus and I believe his spirit is present in the world. I would like to become a Christian...but this is not something to take lightly. It is probably the hardest thing in the world. 
+As for me, I love Jesus and I believe his spirit is present in the world. I would like to become a Christian...but this is not something to take lightly. It is probably the hardest thing in the world. No matter how you slice it, it involves submitting one's will to God's absolutely, accepting one's conditions unconditionally, and braving infinite suffering steadfastly. 
+
+And loving everyone. Dorothy Day said "I only love God as much as I love the person I love the least."
+
+And striving for perfection - not only striving for perfection but holding oneself accountable to this object. Christianity understands that God loves us unconditionally, and allows us infinite grace - yet it is because of this that we must strive for sinless lives, for excellence, for union with God. In Eastern Orthodoxy, to my mind the most attractive denomination, they call this [[Theosis]]. "God became man that man might become God."
+
+See also: [[Becoming a Christian]]

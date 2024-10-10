@@ -22,6 +22,8 @@ Mass production carries inflated labour costs. People spend their days in the ch
 
 And who can say that such a system is not scalable? It works; it can work as many times and in as many places as you like.
 
+~
+
 Better than a scalable model is a pattern which is indefinitely replicable.
 
 It’s true that tutoring doesn’t scale. But the pattern of one person teaching another person — that pattern is perfect. It cannot be improved upon.
@@ -56,7 +58,7 @@ So, is tutoring scalable? Gifted teachers do exist. Are they so few and far betw
 
 I tend to take an evolutionary view of the allocation of talent. Supposing humans evolved to live in tribes of 100 people or so, the essential archetypes like that of the teacher would be common enough for every tribe to get at least a few in each generation. Plus, almost everyone is at least a competent teacher when it comes to stuff they’re an expert on. Even the most autistic physicist can still teach physics. Even the most taciturn blacksmith can nurture an apprentice to mastery. After all, they became, once, too.
 
-It makes evolutionary sense that most people should be good teachers, because a tribe that cannot pass on knowledge and skills to the next generation will die out in a hurry.
+It makes evolutionary sense that most people should be decent teachers, because a tribe that cannot pass on knowledge and skills to the next generation will die out in a hurry.
 
 If we are currently achieving a minute fraction of our potential learning outcomes, then we are that tribe.
 
@@ -106,7 +108,7 @@ Hoel points out that we’ve had this for a couple decades now:
 >   
 > And yet, this great real-world experiment has seen, not just no effect, but perhaps the exact opposite effect of a decline of genius.
 
-I submit that the conditions on the ground are so bad that young people are generally in no position to make good on the expansion of possibility offered by the internet. They have been alienated from their sense of possibility and personal autonomy. So wrote Ivan Illich, the terrific Christian thinker:
+I submit that the conditions on the ground are so bad that young people are generally in no position to make good on the expansion of possibility offered by the internet. They have been alienated from their sense of possibility and personal autonomy. So wrote [[Ivan Illich]], the terrific [[Christian]] thinker:
 
 > School makes alienation preparatory to life, thus depriving education of reality and work of creativity…Once this lesson is learned, people lose their incentive to grow in independence; they no longer find relatedness attractive, and close themselves off to the surprises which life offers.
 

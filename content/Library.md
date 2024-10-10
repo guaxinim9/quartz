@@ -1,6 +1,6 @@
 #### Currently Reading:
 
-- Bible (The Message translation)
+- Bible (The Message translation by Eugene Peterson)
 - The Worldly Philosophers by Robert Heilbroner
 - Underworld by Don DeLillo
 - Measurement by Paul Lockhart
@@ -8,6 +8,7 @@
 - Theosis by Archimandrite George
 - The Song of the Cell by Siddhartha Mukherjee
 - The Everlasting Man by G.K. Chesterton
+- War and Peace in the Global Village by Marshall McLuhan
 
 #### Recently Read:
 
@@ -26,6 +27,9 @@
 - Triumph of the City by Edward Glaeser
 - The Future of Cities by Nikos Salingaros
 - The Symbiotic Planet by Lynn Margulis
+- The Medium and the Light by Marshall McLuhan
+- Understanding Media by Marshall McLuhan
+- The Devils by Fyodor Dostoevsky
 
 #### My Favourites:
 

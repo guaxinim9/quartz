@@ -1,5 +1,7 @@
 ### Human Nature
 
+We are meant to live together. 
+
 Living things enjoy a unity of purpose. There is no separation between body and mind. Both are instruments of the same. 
 
 Every form evolves to fulfill a function. The tiger pounces, the deer flees, the flea sucks, the spider weaves — all live as seamless extensions of their environment, bound by their relations to each other and the conditions of the incarnation. We are no different. We have a place within the order of things.
