@@ -1,6 +1,18 @@
 ### Human Nature
 
-We are meant to live together. 
+We are meant to live together. We evolved in tribes. So our basic cognitive architecture is optimized for the tribe. It is [[Human Nature]].
+
+I came upon this way of thinking scientifically, through the doctrine of evolutionary psychology. But religion says the same thing. The early Christians organized themselves into small communities. We are used to thinking of commune-building as the doomed enterprise of idealists, and to some extent this is true - most communes fail. But religious communes are an obvious and shining exception. They have always functioned and flourished, and continue to do so to this day. Surrendering one's will to Christ would seem an absurdly irrational move, but the proof is in the proverbial pudding. 
+
+God wants us to live in tribes, and nature wants the same. No matter your metaphor, we are meant to live together.
+
+
+
+But, we don't. We are [[lonely]]. We live as individuals. If we're lucky, we make families which 
+
+So, how can we make this happen today?
+
+
 
 Living things enjoy a unity of purpose. There is no separation between body and mind. Both are instruments of the same. 
 
@@ -14,7 +26,7 @@ Just as lions live in prides and bees in hives, humans evolved to live in tribes
 
 Healthy dolphins separated from their pods are known to die of loneliness. Human beings are killing themselves every day. Tribal cultures do not know depression or suicide. Why? Because they live as humans are meant to live. We are [[built for the tribe]].
 
-Everyone knows that we need community. Everyone knows that we lack community. With the advent of AI and the internet, our civilization has the opportunity to redesign its basic social architecture, on a scale unforeseen since the advent of the alphabet. 
+Everyone knows that we need community. Science and religion are in complete agreement. Everyone knows that we lack community. With the advent of AI and the internet, our civilization has the opportunity to redesign its basic social architecture, on a scale unforeseen since the advent of the alphabet. 
 
 Our evolutionary legacy may hold some inspiration, in this adventure of cultural redesign. We _know_ that human beings are happy in tribes, moving with the rhythm of things. We know that suicide is unheard of and cancer extremely rare, among people living in a human way. How many billions does our society pour into mental health and cancer research? Could the solution be as simple as living with others, and doing real work together?
 

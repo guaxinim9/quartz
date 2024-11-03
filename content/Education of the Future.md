@@ -30,7 +30,7 @@ It’s true that tutoring doesn’t scale. But the pattern of one person teachin
 
 Our obsession with scale is a product of our civilized habit. Enough eggs must be produced not only to feed the people taking care of the chickens but also all of the unproductive people in the city, who can’t keep chickens themselves. A house is clearly a replicable pattern, but it won’t do for the city — we need apartment complexes.
 
-When something scales up it must be changed in some way; it must lose something. Apartments do not have yards. But when a pattern is replicated it need not be changed at all. The pattern of a house is solid; it will always work the same.
+When something scales up it must be changed in some way; it must lose something. Apartments do not have yards. But when a pattern is replicated it need not be changed at all. The pattern of a house is solid; it will always work the same–though of course, like the pattern of a sonnet or a human being, it may take infinitely many forms.
 
 All such patterns come thoroughly tested by evolution. They have been honed to their most optimal form.
 

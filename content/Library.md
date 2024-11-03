@@ -5,10 +5,12 @@
 - Underworld by Don DeLillo
 - Measurement by Paul Lockhart
 - The Timeless Way of Building by Christopher Alexander et al
+- A Pattern Language by Christopher Alexander et al
 - Theosis by Archimandrite George
 - The Song of the Cell by Siddhartha Mukherjee
 - The Everlasting Man by G.K. Chesterton
-- War and Peace in the Global Village by Marshall McLuhan
+- Understanding Media by Marshall McLuhan
+- The Future of Cities by Nikos Salingaros
 
 #### Recently Read:
 
@@ -17,6 +19,7 @@
 - A Mathematician's Lament by Paul Lockhart
 - Autobiography of a Yogi by Paramahansa Yogananda
 - The Art of Learning by Josh Waitzkin
+- War and Peace in the Global Village by Marshall McLuhan
 
 #### To Read:
 
@@ -25,10 +28,8 @@
 - The Structure of Scientific Revolutions by Thomas Kuhn
 - Intro to Mathematical Thinking by Keith Devlin
 - Triumph of the City by Edward Glaeser
-- The Future of Cities by Nikos Salingaros
 - The Symbiotic Planet by Lynn Margulis
 - The Medium and the Light by Marshall McLuhan
-- Understanding Media by Marshall McLuhan
 - The Devils by Fyodor Dostoevsky
 
 #### My Favourites:

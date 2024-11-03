@@ -6,6 +6,6 @@ Welcome to my digital garden!
 Things I'm proud of:
 - [[The Fractal Tribe Manifesto]]
 - [[Education of the Future]]
-- 
 
-E aqui para os meus escritos em [[Português]]
+Some of my assorted writings:
+ - [[Telling "The Adults" to "Do Something"]]
