@@ -16,6 +16,6 @@ That is, if you choose to believe that you are beyond the selfishness of the mar
 
 But the situation luckily is unlike the prisoner's dilemma because if the other chooses to commit, then you are not better served by leaving. 
 
-And the prisoner's dilemma even doesn't appropriately model a real interrogation of two partner criminals, because it assumes that each player is a 'rational agent' concerned solely with their own welfare. 
+And the prisoner's dilemma doesn't even appropriately model a real interrogation of two partner criminals, because it assumes that each player is a 'rational agent' concerned solely with their own welfare. 
 
 Thank God real life is more interesting than economic models. 

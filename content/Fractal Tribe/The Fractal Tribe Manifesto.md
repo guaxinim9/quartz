@@ -2,7 +2,7 @@
 
 We are meant to live together. We evolved in tribes. So our basic cognitive architecture is optimized for the tribe. It is [[Human Nature]].
 
-I came upon this way of thinking scientifically, through the doctrine of evolutionary psychology. But religion says the same thing. The early Christians organized themselves into small communities. We are used to thinking of commune-building as the doomed enterprise of idealists, and to some extent this is true - most communes fail. But religious communes are an obvious and shining exception. They have always functioned and flourished, and continue to do so to this day. Surrendering one's will to Christ would seem an absurdly irrational move, but the proof is in the proverbial pudding. 
+I came upon this way of thinking scientifically, through the doctrine of evolutionary psychology. But religion reckons the same. The early Christians organized themselves into small communities. We are used to thinking of commune-building as the doomed enterprise of idealists, and to some extent this is true - most communes fail. But religious communes are an obvious and shining exception. They have always functioned and flourished, and continue to do so to this day. Surrendering one's will to Christ would seem an absurdly irrational move, but the proof is in the proverbial pudding. 
 
 God wants us to live in tribes, and nature wants the same. No matter your metaphor, we are meant to live together.
 

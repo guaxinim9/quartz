@@ -1,3 +1,7 @@
+---
+aliases:
+  - converted
+---
 It is a miracle that anyone ever manages to persuade a stranger of anything. 
 
 How did [[Christianity]] ever get going in Rome? It seems like an impossible task to go up to some Roman guy who’s perfectly happy with his pantheon of anthropomorphic natural forces, and try to convince him that some guy who got the death penalty a few years back was actually personally God, and that there’s only one God but also 3, and this guy was ⅓ of God and also fully God, but also fully a guy, and the only path to salvation.

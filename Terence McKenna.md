@@ -1,1 +1,0 @@
-American talky-thinky guy (philosopher)

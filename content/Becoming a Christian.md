@@ -1,4 +1,4 @@
-My favourite philosopher, Søren Kierkegaard, was a fervent disciple of Christ. He was born into a strict Lutheran family, at a time when almost everyone in his society was at least nominally Christian. He considered religion to be the meaning and purpose of his life. Yet, he was very cautious about identifying himself as a Christian. He always preferred to say that he was 'becoming a Christian.'
+My favourite philosopher, [[Søren Kierkegaard]], was a fervent disciple of Christ. He was born into a strict Lutheran family, at a time when almost everyone in his society was at least nominally Christian. He considered religion to be the meaning and purpose of his life. Yet, he was very cautious about identifying himself as a Christian. He always preferred to say that he was 'becoming a Christian.'
 
 Those who are Christians 'as a matter of course' are no true Christians. Becoming a Christian is a task of monumental significance and difficulty. 
 
