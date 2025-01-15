@@ -44,7 +44,7 @@ And it costs nothing for them to beg The Adults to Do Something, and take them t
 
 ![](https://miro.medium.com/v2/resize:fit:700/1*piwBjlE9zIb2RMK-hHwYVQ.png)
 
-The author (right), saving the planet (the pipeline was duly built)
+*The author (right), saving the planet (the pipeline was duly built)*
 
 Besides the above, the only climate protest I ever attended was at the University of British Columbia, where I happened to be living at the time. I went to a dorm event for making signs the night before, and met a girl to whom I would later lose my virginity. I made a couple other friends and we all arranged to go together to the protest with our signs. It was a perfectly pleasant social gathering.
 

@@ -11,5 +11,3 @@ These are the words of Kierkegaard scholar Clare Carlisle who later in the same 
 I think this represents a radical honesty and humility which the spiritual life, and certainly the Christian life, demands.
 
 Without it, we are prone to end up worshipping ourselves, on our own terms, as we are the apertures through which we view God, and all is reflection. This narcissistic spirituality is typical of the new age way of thinking, so prevalent on the hippie island where I live. All is One, All is God, so I'm as much God as anything, and I'm already perfect no matter what I do. It's perfectly sound, but it's hollow. We should judge trees by their fruit - these people, who believe they're already perfect, accomplish nothing. Christians, through humility and obedience, achieve greatness. 
-
-[[A gentle heresy]]

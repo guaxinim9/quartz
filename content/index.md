@@ -3,9 +3,10 @@ title: Home
 ---
 Welcome to my digital garden! 
 
-Things I'm proud of:
-- [[The Fractal Tribe Manifesto]]
-- [[Education of the Future]]
-
-Some of my assorted writings:
+Some of my recent writings:
+ - [[Education of the Future]]
+ - [[The Testimony of Others]]
+ - [[Universal brotherhood is no substitute for brotherhood]]
  - [[Telling "The Adults" to "Do Something"]]
+ - [[Grim Galactic Civilization]]
+ - [[Be the change you wish to see]]

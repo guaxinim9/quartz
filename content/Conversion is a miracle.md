@@ -4,9 +4,9 @@ aliases:
 ---
 It is a miracle that anyone ever manages to persuade a stranger of anything. 
 
-How did [[Christianity]] ever get going in Rome? It seems like an impossible task to go up to some Roman guy who’s perfectly happy with his pantheon of anthropomorphic natural forces, and try to convince him that some guy who got the death penalty a few years back was actually personally God, and that there’s only one God but also 3, and this guy was ⅓ of God and also fully God, but also fully a guy, and the only path to salvation.
+How did [[Christianity]] ever get going in Rome? It seems like an impossible task to go up to some Roman guy who’s perfectly happy with his pantheon of anthropomorphic natural forces, and try to convince him that some guy who got the death penalty a few years back was actually personally God, and that there’s only one God but also 3, and this guy was ⅓ of God and also fully God, but also fully a guy, and the only path to salvation. And what the hell is salvation in the first place! What does that mean?
 
-How did anyone ever manage to persuade a stranger that Jesus Christ, Some Guy, was personally God, that he alone is the path to salvation? It is absurd! If it had not been in the water your whole life, how would you react to some guy coming up to you and trying to get you onboard? Yet it happened, over and over and over again.
+If this stuff had not been in the water your whole life, how would you react to some guy coming up to you and trying to get you onboard? Yet it happened, over and over and over again.
 
 Well, let us first note that a major prerequisite to accepting Christianity is accepting the premise that you need saving. That you are fallen. The missionary first has to evoke this in you. This is fertile ground. Consider it the lure on the hook. Your sadness, your pain, your ego, your wretchedness–their job is first and foremost to paint a vivid picture of it, one that you will recognize. If they do their job right they will describe your secret torments and longings in such a way that they will seem to know you better than anyone has ever known you. This is powerful. But again they are only describing themselves, for these things we all share to some degree.
 
