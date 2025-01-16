@@ -1,0 +1,9 @@
+It is a fact. Small farms, tended by a single family or community, are far more efficient.
+
+After all, the people know the land, and are in relationship with it. Instead of growing one monocultural cash crop, they are able to grow many different crops which share space and interact symbiotically. This is obviously more efficient. Instead of growing just corn, for example, they might grow corn, beans, squash - the three sisters, which indigenous people have been ripping since time immemorial. 
+
+Miguel Altieri, perhaps the world's leading expert in agroecology, [writes](https://monthlyreview.org/2009/07/01/agroecology-small-farms-and-food-sovereignty/#:~:text=However%2C%20an%20important%20part%20of,cars%20through%20growing%20agrofuel%20feedstocks.): 
+
+> By managing fewer resources more intensively, small farmers are able to make more profit per unit of output, and thus, make more total profits—even if production of each commodity is less. In overall output, the diversified farm produces much more food. In the United States the smallest two-hectare farms produced $15,104 per hectare and netted about $2,902 per hectare. The largest farms, averaging 15,581 hectares, yielded $249 per hectare and netted about $52 per hectare. Not only do small- to medium-sized farms exhibit higher yields than conventional larger-scale farms, but they do this with much lower negative impacts on the environment, as research shows that small farmers take better care of natural resources, including reducing soil erosion and conserving biodiversity...
+> 
+> The inverse relationship between farm size and output can be attributed to the more efficient use of land, water, biodiversity, and other agricultural resources by small farmers. So in terms of converting inputs into outputs, society would be better off with small-scale farmers.

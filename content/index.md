@@ -1,7 +1,7 @@
 ---
 title: Home
 ---
-Welcome to my digital garden! 
+Welcome to my digital garden! Here I will post notes and essays that I think others might find useful or interesting, along with uploading things I really like, such as [[Sadhana the Realization of Life]]. 
 
 Some of my recent writings:
  - [[Education of the Future]]
