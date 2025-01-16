@@ -24,7 +24,7 @@ We are social animals. We are optimized for life in small, committed groups, whe
 
 Just as lions live in prides and bees in hives, humans evolved to live in tribes. If modern man is homeless, confused, adrift, with no way of being in the world, we may consider the possibility that this is for lack of a tribe, which is the natural intermediary between the individual and the incomprehensible. We are not made to live as individuals. It is very scary for us, and the strategies we adopt to cope are often self-destructive.
 
-Healthy dolphins separated from their pods are known to die of loneliness. Human beings are killing themselves every day. Tribal cultures do not know depression or suicide. Why? Because they live as humans are meant to live. We are [[built for the tribe]].
+Healthy dolphins separated from their pods are known to die of loneliness. Human beings are killing themselves every day. Tribal cultures do not know depression or suicide. Why? Because they live as humans are meant to live. We are [[Built for the Tribe]].
 
 Everyone knows that we need community. Science and religion are in complete agreement. Everyone knows that we lack community. With the advent of AI and the internet, our civilization has the opportunity to redesign its basic social architecture, on a scale unforeseen since the advent of the alphabet. 
 
