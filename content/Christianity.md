@@ -7,7 +7,7 @@ It is the world's main religion, which is itself a great mystery. A Christian, a
 
 ![[Spas_vsederzhitel_sinay_(cropped1) copy.jpg]]
 
-Many faiths are perfectly logical. All is One, for example, satisfies the intellect completely. All is One which is the mind of God which is infinite. This has been my metaphysics before and as I say it is sound. But it's a bit boring. It's not much of a *story*. 
+Many faiths are perfectly logical. All is One, for instance, satisfies the intellect completely. All is One which is the mind of God which is infinite. This has been my metaphysics before and as I say it is sound. But it's a bit boring. It's not much of a *story*. 
 
 Christianity, on the other hand, lives in an incomprehensibly bizarre cosmos. It's easy to accuse it of anthropomorphism, but quite impossible to prove that it is not the other way around. Either we are made in God's image or we make God in our image–that there exists a family resemblance can be concrete evidence for neither claim. At the end of the day, it must be a matter of preference. We do choose what we want to believe. 
 

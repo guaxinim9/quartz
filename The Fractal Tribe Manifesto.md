@@ -2,17 +2,17 @@
 
 We are meant to live together. We evolved in tribes. So our basic cognitive architecture is optimized for the tribe. It is [[Human Nature]].
 
-I came upon this way of thinking scientifically, through the doctrine of evolutionary psychology. But religion reckons the same. The early Christians organized themselves into small communities. We are used to thinking of commune-building as the doomed enterprise of idealists, and to some extent this is true - most communes fail. But religious communes are an obvious and shining exception. They have always functioned and flourished, and continue to do so to this day. Surrendering one's will to Christ would seem an absurdly irrational move, but the proof is in the proverbial pudding. 
-
 God wants us to live in tribes, and nature wants the same. No matter your metaphor, we are meant to live together.
 
+But, we don't. We are [[lonely]]. We live as individuals. If we're lucky, we make families which act (at their best) as tranquil islands of love amidst above and beyond the grinding of meat. 
 
+This is good, and sometimes very good. But I submit it is insufficient. Precious few families are capable of coping with the rapid advance of digital media. Quality time spent with family is tanking across the west. 
 
-But, we don't. We are [[lonely]]. We live as individuals. If we're lucky, we make families which 
+[[The family cannot do it all]]. A larger body of love and belonging is necessary. 
 
 So, how can we make this happen today?
 
-
+~
 
 Living things enjoy a unity of purpose. There is no separation between body and mind. Both are instruments of the same. 
 
@@ -32,6 +32,9 @@ Our evolutionary legacy may hold some inspiration, in this adventure of cultural
 
 Let us become as tribes again. Gather our people. Pool our resources. Let us get together, commit to each other, and forge a life as one.
 
+> In terms of, say, computer technology, we are heading for cottage economies, where the most important industrial activities can be carried on in any little individual shack anywhere on the globe. That is, the most important designs and the most important activities can be programmed by individuals in the most remote areas. -McLuhan
+
+> Another important point is that small, diversified farms always produce more per unit of land, water, and energy than large monocultures. So we have to turn this lie around that there are too many people now to localize, too many people to have small farms. It’s exactly the opposite. - Helena Norberg-Hodge
 ### The Tribe
 
 To be is to give. To receive is to reify the other’s being. We become ourselves only through the other. 
