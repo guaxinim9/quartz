@@ -14,7 +14,7 @@ Like so many economists, Hanson's model of the world (we might describe it as po
 
 This is from another piece, *Poor Folks Do Smile*, in which he points out that life at subsistence level is pretty good, because "our ancestors were designed with pleasure and pain to motivate them in a near subsistence world." Poor folks do smile, after all—go to an African village and you'll find they're happier than we.
 
-> Our descendants will be similarly adapted to find joy and meaning in their near subsistence lives.  And intense pain may well be eliminated in favor of other ways to inducing the required focus. Contact with virtual worlds and with a vast larger society will be far cheaper for them that it was for our ancestors, though contact with a real wild nature will be more expensive.
+> Our descendants will be similarly adapted to find joy and meaning in their near subsistence lives. And intense pain may well be eliminated in favor of other ways to inducing the required focus. Contact with virtual worlds and with a vast larger society will be far cheaper for them that it was for our ancestors, though contact with a real wild nature will be more expensive.
 
 It's true that the poor are mostly happy...but only in the irrational south, where community (and wild nature) still live! And those communities within western cities who have not been totally literized and have kept the tribal spirit alive. 
 
@@ -24,7 +24,7 @@ That's the funniest part of all of this: Hanson has to pretend his obvious dysto
 
 > Our distant descendants will also likely have hit diminishing returns to discovery; by then most everything worth knowing will be known by many; truly new and important discoveries will be quite rare. Complete introspection will be feasible, and immortality will be available to the few who can afford it.  Wild nature will be mostly gone, and universal coordination and destruction will both be far harder than today.
 
-The rationalist's world is so mean it's a miracle he can live in it. Well, no, that's not true at all. He's pleased with himself, he's well fed, and he knows it all. That's enough to eke out a half-decent ebb and flow at least as well as any modern person. Is he emptyish inside? Who knows. I barely made it through adolescence before snapping out of that epistemic hole. Not that I'm all that. I'd still be stuck in it, were it not for the grace of God. 
+The rationalist's world is so mean it's a miracle he can live in it. Well, no, that's not true at all. He's pleased with himself, he's well fed, and he knows it all. That's enough to eke out a half-decent ebb and flow at least as well as any modern person. Is he emptyish inside? Who knows. I barely made it through adolescence before snapping out of that epistemic hole. Not that I'm all that. I'd still be stuck there but for the grace of God. 
 
 And it's wrong! The mind will not go in a computer! You have no reason to believe this will work - except your irrational dogmatic attachment to the metaphor of the brain as a computer and everything as mechanism. 
 

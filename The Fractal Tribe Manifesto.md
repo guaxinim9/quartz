@@ -35,6 +35,8 @@ Let us become as tribes again. Gather our people. Pool our resources. Let us get
 > In terms of, say, computer technology, we are heading for cottage economies, where the most important industrial activities can be carried on in any little individual shack anywhere on the globe. That is, the most important designs and the most important activities can be programmed by individuals in the most remote areas. -McLuhan
 
 > Another important point is that small, diversified farms always produce more per unit of land, water, and energy than large monocultures. So we have to turn this lie around that there are too many people now to localize, too many people to have small farms. It’s exactly the opposite. - Helena Norberg-Hodge
+
+> Never doubt that a small group of thoughtful, committed people can change the world. Indeed, it's the only thing that ever has. - Margaret Mead
 ### The Tribe
 
 To be is to give. To receive is to reify the other’s being. We become ourselves only through the other. 
