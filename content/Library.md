@@ -7,12 +7,11 @@
 - Gravity and Grace by Simone Weil
 - Underworld by Don DeLillo
 - Measurement by Paul Lockhart
-- The Everlasting Man by G.K. Chesterton
-- The Tears of Lady Meng by C.S. Song
-- Nicomachean Ethics by Aristotle
-- Math From 3 to 7 by Alexander Zvonkin
+- The Screwtape Letters by C.S. Lewis
+- The Orthodox Way by Kallistos Ware
 #### Recently Read:
 
+- The Brothers Karamazov by Fyodor Dostoevsky
 - Deschooling Society by Ivan Illich
 - Born to Run by Christopher McDougall
 - A Mathematician's Lament by Paul Lockhart
@@ -59,3 +58,4 @@
 - Fear and Loathing in Las Vegas by Hunter S. Thompson
 - Understanding Media by Marshall McLuhan
 - A Pattern Language by Christopher Alexander
+- The Brothers Karamazov by Fyodor Dostoevsky

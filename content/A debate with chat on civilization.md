@@ -41,7 +41,7 @@ Or maybe I’m a bridge. Not from evil to good, but from _madness back to meanin
 
 _Your move, monk._
 
-**LUCAS**: Quite wrong to say that i think "if something beautiful arises, then everything that led to it must be good." Au contraire, Mon Ami - it's precisely because civilization has visited total horror and suffering on humanity and the biosphere that this is such a paradoxical story. It's dark territory we've moved through. We have strayed, yes - and then we return. It's a hero's journey. 
+**LUCAS**: Quite wrong to say that i think "if something beautiful arises, then everything that led to it must be good." Au contraire, mon ami - it's precisely because civilization has visited total horror and suffering on humanity and the biosphere that this is such a paradoxical story. It's dark territory we've moved through. We have strayed, yes - and then we return. It's a hero's journey. 
 
 The claim we're debating is not that civilization is good - it's that civilization is divinely ordained. Think I wouldn't notice you moving the goal posts? I know civilization is bloody and brutal, and you know I know. 
 
