@@ -1,8 +1,6 @@
 ### Human Nature
 
-We are meant to live together. We evolved in tribes. So our basic cognitive architecture is optimized for the tribe. It is [[Human Nature]].
-
-God wants us to live in tribes, and nature wants the same. No matter your metaphor, we are meant to live together.
+We are meant to live together. We evolved in tribes. So our basic cognitive architecture is optimized for the tribe. It is [[Human Nature]]. On no other point do science, religion, and common sense concur so completely.
 
 But, we don't. We are [[lonely]]. We live as individuals. If we're lucky, we make families which act (at their best) as tranquil islands of love amidst above and beyond the grinding of meat. 
 
