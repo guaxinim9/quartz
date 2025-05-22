@@ -1,0 +1,7 @@
+What is today called tribalism refers to the mentality of one boxed in, a cornered animal, at odds with their reality. A tribe fragmented and surrounded by hostile forces behaves differently than one lovingly held by its landscape–another instance in which we see a fractal relation to the familiar patterns of individual psychology. But today’s so-called tribalism is all about the individual. The tribe they believe in is almost always just a story. Some ethnicity or shared cultural heritage or nation-state. Even a political party or religious organization.
+
+In this mentality, [[The Tribe]] is always under attack. Nothing is safe. But really it’s YOU who feel unsafe. YOU feel under attack.
+
+It is a natural consequence of people not having a real tribe. All that hardware has nothing to do. You do not have tribe scale-problems to solve together with your tribe, but you’re constantly getting fed stimulating info about nation-scale problems, and of course they get you just as fired up.
+
+Tribalism has become a bad word precisely because the adaptations of tribal humans to modern society are bound to be dysfunctional and unhealthy. Those who harbour secret yearnings for the tribe are prone to seeking symbolic objects in which to invest all of that excess energy. From conspiracy theories and esoteric secret societies to plain old profane nationalism, there is always a purpose lurking behind the fanaticism. Modern man goes mad so as not to go crazy.
