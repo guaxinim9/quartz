@@ -1,14 +1,20 @@
 ---
 title: Home
 ---
-Welcome to my digital garden! 
+I'm Lucas, a writer and tutor based in Vancouver, BC.
 
-The purpose of this website is twofold.
+I believe the industrial school system is incomprehensibly bad, and that personal mentorship is the best way to learn things of value.
 
-1) To provide a curated list of what I currently consider to be my best work
-2) To share my personal web of notes, ideas, interesting facts, load-bearing pillars of my model, so that I can link to them from elsewhere
+Currently, I'm offering two small group classes, aimed at bright, autodidactic youth:
 
-Some of my recent writings:
+An Intro to Philosophy, aimed at ages 9-14.
+
+And a European History, aimed at 14-18.
+The class will mostly be a distillation of Out of Revolution, by Eugen Rosenstock-Huessy.
+
+Here's what I'm currently [[Library|reading]].
+
+And here are some of my recent writings:
  - [[Christian Anthropology Trilogy]]
  - [[Education of the Future]]
  - [[The Testimony of Others]]

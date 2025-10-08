@@ -1,3 +1,7 @@
+---
+aliases:
+  - reading
+---
 #### Currently Reading:
 
 - Bible
